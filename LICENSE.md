@@ -1,4 +1,4 @@
-
+Enhance ClickUp for macOS with ClickUp for macOS premium Integration: export to PDF & goal tracking, the #1 integration. Includes export to PDF and goal tracking for a smoother
 
 
 
